@@ -1,0 +1,2 @@
+# bulshitman.blogspot.com
+internet
